@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+[LinkedIn](https://www.linkedin.com/in/chanintorn/) | [Facebook](https://www.facebook.com/chanintorn) | [Instagram](https://www.instagram.com/aijojoe/) | [Medium](https://medium.com/@aijo)
+
+
+**Jo** 👨🏻‍💻
